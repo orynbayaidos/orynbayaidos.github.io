@@ -1,0 +1,1 @@
+# orynbayaidos.github.io
